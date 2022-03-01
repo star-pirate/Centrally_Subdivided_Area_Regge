@@ -1,0 +1,1 @@
+# Centrally_Subdivided_Area_Regge
